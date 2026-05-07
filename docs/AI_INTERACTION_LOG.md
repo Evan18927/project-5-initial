@@ -1,0 +1,1 @@
+I sent it the read me and would ask it the questions in to great detail asking it to make it in the way I wanted such as.
