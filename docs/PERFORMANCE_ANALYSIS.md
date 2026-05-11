@@ -1,0 +1,1 @@
+It worked very well it said I had 0 exit code and i believe the assignment was fully completed perfectly with no issues. I had the AI add comments into my code to, organize it all making it look cleaner, and explaing it all.
